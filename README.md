@@ -1,1 +1,1 @@
-# -the-secret-society.github.io
+# the-secret-society.github.io
